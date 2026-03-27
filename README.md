@@ -20,6 +20,4 @@
 - Kotlin
 - Dart/flutter
 
-*Thanks for reading my About Me, if you want to contact me about a project of yours, here is how you can reach me:*
-
-My favourite song is [Death by glamour](https://www.youtube.com/watch?v=qeDIZCc6Cyo). Just listen to this piece of art, it is soo good.
+**Thanks for reading my about me. If you got a project idea, want to collaborate, or just want to say hi? Reach out to me on [Discord](https://discord.com/users/983438985818931210).**
