@@ -24,7 +24,7 @@
 
 ***SOCIALS:***
 - [Discord](https://discord.com/users/983438985818931210)
-- [Twitter]([https://](https://x.com/YasinWesamX))
+- [Twitter]([https://](https://x.com/YasinWesamX)
 
 
 My favourite song is [Death by glamour](https://www.youtube.com/watch?v=qeDIZCc6Cyo). Just listen to this piece of art, it is soo good.
