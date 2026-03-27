@@ -20,4 +20,4 @@
 - Kotlin
 - Dart/flutter
 
-**Thanks for reading my about me. If you got a project idea, want to collaborate, or just want to say hi? Reach out to me on [Discord](https://discord.com/users/983438985818931210).**
+**Thanks for reading my about me. If you got a project idea, want to collaborate, or just want to say hi. Reach out to me on [Discord](https://discord.com/users/983438985818931210).**
