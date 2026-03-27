@@ -22,9 +22,4 @@
 
 *Thanks for reading my About Me, if you want to contact me about a project of yours, here is how you can reach me:*
 
-***SOCIALS:***
-- [Discord](https://discord.com/users/983438985818931210)
-- [Twitter]([https://](https://x.com/YasinWesamX)
-
-
 My favourite song is [Death by glamour](https://www.youtube.com/watch?v=qeDIZCc6Cyo). Just listen to this piece of art, it is soo good.
